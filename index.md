@@ -1,37 +1,20 @@
-## Welcome to GitHub Pages
+<h1>How To Store Dog Sperm At Home</h1>
 
-You can use the [editor on GitHub](https://github.com/Tobanggado/how-to-store-dog-sperm-at-home/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+<div id="toc" style="background: #f9f9f9;border: 1px solid #aaa;display: table;margin-bottom: 1em;padding: 1em;width: 350px;"><p class="toctitle" style="font-weight: 700;text-align: center;">Content</p><ul class="toc_list"><li><a href="#toc-0">International Canine Semen Financial Institution Of New Jersey</a></li><li><a href="#toc-1">Semen Services</a></li><li><a href="#toc-2">Being Pregnant And Ultrasound</a></li><li><a href="#toc-3">Utilizing Synthetic Insemination In A Industrial Breeding Herd</a></li><li><a href="#toc-7">Help Future Generations Of Dogs</a></li></ul></div>
+<p>After elimination of the disposable gloves, wash your palms totally with soap and water and rinse nicely. Brucellosis in dogs usually causes reproductive issues similar to infertility and abortions, with few different indicators of medical sickness. The firm boasts that it has since expanded to more than 50 centers worldwide, including in Australia, Japan and all through North America. The trial uncovered jurors to the high-stakes, generally precarious world of breeding elite searching dogs. Weiner also used to promote vials of the champion dogs’ semen for $3,000 a chunk to buyers excited about impregnating their very own female dogs.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>What age can you freeze sperm?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>"Those freezing for the needs of sperm donation to business sperm banks ought to ideally be &lt;40 years old, healthy, with wonderful sperm parameters, and without household histories regarding for most cancers or other hereditary illness," says Dr. Brady.</p></div>  </div></div>
+<p>Dr. Pew and his spouse Suzanne have a daughter, Audrey, and son, James, who both come to the office frequently. They reside in Draper and have two pets, a cat named Kit Kat and a miniature bull terrier named Diver. Estrogens cause lots of the indicators of estrus, however ovulation cannot be timed based on estrogens.</p>
+<h2 id="toc-0">International Canine Semen Bank Of New Jersey</h2>
+<p>Yes, he can still produce sperm and impregnate a female dog for some time after being neutered. There continues to be sperm within the tubes and nonetheless male hormones in his system, subsequently he may even have the urge to mate. But to up the possibilities, some lovers are shopping for show-dog high quality sperm. According to Bloomberg, one vial prices about $2,000, which is lower than the worth of buying a show-quality dog (starting at around $2,500) and delivery to your home. Most canines will thrust initially, coinciding with the penetration.</p>
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tobanggado/how-to-store-dog-sperm-at-home/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<p>The frozen semen is saved on the premises in liquid nitrogen storage tanks. Bitch owners who're thinking about breeding have to contact the stud proprietor for breeding preparations. Heartland Animal Center isn't the proprietor of the semen and no breeding preparations can be made with out the semen owner's consent. If you're planning on transport semen to a different country, it is strongly recommended that you just talk to the veterinarian receiving the semen.</p>
+<h3 id="toc-1">Semen Companies</h3>
+<p>This article covers proper semen tank management, thawing of semen, insemination of synchronized groups, and extra pointers. Vaginoscopy, or trying on the vaginal wall with a vaginoscope, is another part of our estimation of her fertile window. The vaginal wall will look “crenulated” during her progesterone rise, and turn out to be maximally so throughout her most fertile days. Anesthetic induction consists of coning smaller individuals with isoflurane. Larger bitches may require an intravenous injection of a normal brief acting anesthetic to realize leisure for intubation and maintenance with isoflurane (i.e., propofol).</p>
+<ul><li>Progesterone ranges begin to rise on the identical day as LH peaks.</li><li>Dogs are uncovered to the disease via contact with contaminated bodily fluids.</li><li>Dick Weiner and Brad Barcroft claimed the Sandy-area sperm financial institution negligently allowed the sperm of six prized, long-dead Labradors to thaw and turn into useless after a freezer mishap in 1997.</li><li>Frozen semen is predicted to final tons of of years if maintained properly.</li><li>Dr Gotwals acquired her DVM from The Ohio State University in 1987.</li><li>Day after heat for a cycle by which the house owners want to breed her.</li></ul>
+<p>This will guarantee his breeding availability for future generations. The American Kennel Club does require that any dog frozen after October 1, 1998 should have a DNA profile on record with them. We have the DNA assortment kits and can do the cheek cell collection at the time of your appointment.</p>
+<h2 id="toc-2">Pregnancy And Ultrasound</h2>
+<p>Just as girls search out their OB/GYN for care throughout being pregnant, canines can even require Unique look after numerous points that can arise throughout breeding, pregnancy, or supply. The Theriogenology and Reproductive Medicine Service at the VMC will supply assisted reproductive providers for canines and cats, farm, and equine patients. OFA hips, elbows, shoulder, and cardiac evaluations could be carried out with the help of the radiology workers. Genetic testing varies between exams, however typically requires a blood or cheek swab sample that we can actually allow you to to accumulate. Additional testing, similar to BAER testing, and CERF evaluations may be carried out at close by referral facilities.</p>
+<div itemScope itemProp="mainEntity" itemType="https://schema.org/Question">  <div itemProp="name"><h2>How lengthy can sperm reside in container?</h2></div>  <div itemScope itemProp="acceptedAnswer" itemType="https://schema.org/Answer">      <div itemProp="text"><p>According to this article from the Healthline website, sperm dies within 15 to half-hour outdoors the human body because of drying out, but when fresh ejaculate is deposited in a small container with a tight lid so that it stays moist, it could last up to an hour and nonetheless remain motile and fertile at room temperature.</p></div>  </div></div>
+<p>TCI is the preferred inseminating method when utilizing frozen semen. It can additionally be a wonderful insemination procedure when using recent chilled prolonged semen or freshly collected semen, or when utilizing semen of less than ideal quality or with poor motility. Stud house owners must be familiar with how greatest their stud canine semen works with recent chilled.</p>
+<h3 id="toc-3">Utilizing Synthetic Insemination In A Industrial Breeding Herd</h3>
+<p>Genetic testing varies between checks, but typically requires a blood or cheek swab sample that we are in a position to purchase for you. We can usually prepare “back-to-back” appointments between our departments to accommodate multiple tests during one go to. Additional monitoring could be applied to special animals which have issue carrying their being pregnant. An at-home uterine monitoring system can be applied for regular monitoring.</p>
